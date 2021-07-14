@@ -1,6 +1,6 @@
 - Hello World! I’m @Roadtogm3k!
 - I’m Like Creating Apps And Coding!
-- Contact Me In Discord! - RoadToGM#0001
+- Contact Me In Discord! - RoadToGM3k#0001
 
 The secret of getting ahead is getting started.
 <!---
